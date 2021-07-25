@@ -8,4 +8,4 @@ Have fun 🤟
 
 --------------------------------------------------------------------------------------------------------------------------------
 
-*For any questions, please contact us on our telegram channel => [Tezer Telegram](https://t.me/Tezertoken)
+*For any questions, please contact us on our telegram channel => [Tezer Telegram](https://t.me/Tezertoken)*
